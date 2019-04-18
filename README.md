@@ -8,6 +8,6 @@ Founders
 
 # :sake: __*Cosmo "Cos" Chan*__ :kissing_heart:
 
-# :money_bag: __*Enoch "Luke" Dennis*__ :man_with_turban:
+# :moneybag: __*Enoch "Luke" Dennis*__ :man_with_turban:
 
 # :computer: __*Sebastian "Sea Bass" Dipirro*__ :triumph:
