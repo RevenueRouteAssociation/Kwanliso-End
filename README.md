@@ -1,5 +1,13 @@
 # The Revenue Route Association's Official Website
 
+<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
+<script>
+  (adsbygoogle = window.adsbygoogle || []).push({
+    google_ad_client: "ca-pub-4481580989029312",
+    enable_page_level_ads: true
+  });
+</script>
+
 Founders
 
 # __*Isaiah "Zae" Angeles*__ 
@@ -25,3 +33,4 @@ revenuerouteassociation@gmail.com
 # [Super Store](https://www.instagram.com/chrisbsale/)
 
 # [Mega Store](https://www.ebay.com/usr/quest1168?_trksid=p2047675.l2559)
+
