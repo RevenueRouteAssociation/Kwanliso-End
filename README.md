@@ -21,5 +21,5 @@ As the great Gandhi said:
 
 # [Fun](https://www.theannoyingsite.com)
 
-# [Store](https://www.evenue-route-association.myshopify.com/)
+# [Store](https://revenue-route-association.myshopify.com/)
 
