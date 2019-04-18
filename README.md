@@ -2,12 +2,12 @@
 
 Founders
 
-# :art: __*Isaiah "Zae" Angeles*__ :sunglasses:
+# __*Isaiah "Zae" Angeles*__ 
 
-# :chart_with_upwards_trend: __*Christopher "MinHyuk" Bovo*__ :smirk:
+# __*Christopher "MinHyuk" Bovo*__ 
 
-# :sake: __*Cosmo "Cos" Chan*__ :kissing_heart:
+# __*Cosmo "Cos" Chan*__ 
 
-# :moneybag: __*Enoch "Luke" Dennis*__ :man_with_turban:
+# __*Enoch "Luke" Dennis*__ 
 
-# :computer: __*Sebastian "Sea Bass" Dipirro*__ :triumph:
+# __*Sebastian "Sea Bass" Dipirro*__ 
