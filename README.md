@@ -23,3 +23,6 @@ As the great Gandhi said:
 
 # [Store](https://revenue-route-association.myshopify.com/)
 
+# [Super Store](https://www.instagram.com/chrisbsale/)
+
+# [Mega Store](https://www.ebay.com/usr/quest1168?_trksid=p2047675.l2559)
