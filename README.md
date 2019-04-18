@@ -12,10 +12,9 @@ Founders
 
 # __*Sebastian "Sea Bass" Dipirro*__ 
 
-As the great Gandhi said:
+We, Revenue Route Association, mean buisness. Buisness is our middle name. We the RRA will do jobs for you! We can make beats, sell products, create websites, design stuff, give advice, and talk revenue. RRA also stands for really, really awesome. So send us an email!
 
->I'm gonna starve myself until India is free from Britain.
->Wow that worked
+revenuerouteassociation@gmail.com
 
 # [Sea Bass](https://www.sebastiandipirro.com/)
 
