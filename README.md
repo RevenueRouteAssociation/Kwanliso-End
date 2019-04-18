@@ -8,6 +8,6 @@ Founders
 
 # __*Cosmo "Cos" Chan*__ 
 
-# __*Enoch "Luke" Dennis*__ 
+# __*The "Big" Papa*__ 
 
 # __*Sebastian "Sea Bass" Dipirro*__ 
